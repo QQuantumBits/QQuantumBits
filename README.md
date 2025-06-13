@@ -10,7 +10,7 @@ We strive to deliver high-quality, creative, and reliable software to make your 
 
 ## 🔗 Connect with Us
 
-- [Join our Discord Community!](https://discord.gg/your-discord-link)  
+- [Join our Discord Community!](https://discord.gg/phVzDFAZ3v)  
   *Get support, request features, or just hang out with us!*
 
 ---
